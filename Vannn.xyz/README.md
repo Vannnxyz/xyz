@@ -1,0 +1,2 @@
+# VANNN.xyz
+BANTAI :V
